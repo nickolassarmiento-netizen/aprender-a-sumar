@@ -2,4 +2,8 @@
 jnovhnknkdsnfksnfpmpm ofp´lc kdkmmcosdmffj
 # *integrantes*
 ## **nickolas sarmiento**
-### ndkansdnadnakdnkandk
+### describcion
+> msdjkajdkajdaaaassd
+## **sebastian**
+### describcion
+> msdjkajdkajdaaaassd
