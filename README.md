@@ -1,3 +1,5 @@
 # *aprender-a-sumar*
 jnovhnknkdsnfksnfpmpm ofp´lc kdkmmcosdmffj
-## **integrante 1**
+# *integrantes*
+## **nickolas sarmiento**
+### ndkansdnadnakdnkandk
